@@ -1,0 +1,1 @@
+This game requires PowerPoint to run. PowerPoint 2013 is recommended.
